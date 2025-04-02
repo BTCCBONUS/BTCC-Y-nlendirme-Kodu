@@ -1,6 +1,8 @@
 <h1>BTCC 2025 Referans Kodu: En Son Kayıt Bonusu Kazanın</h1>
 <h2>1. Giriş</h2>
 <p>BTCC, <strong>rekabetçi ücretleri, güvenliği ve kullanıcı dostu arayüzü</strong> ile tanınan lider bir kripto para borsasıdır. Yeni kullanıcılar, bir <strong>BTCC referans kodu</strong> ile kaydolduklarında özel avantajlardan yararlanabilirler...</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>2. BTCC Referans Bonusu Nedir?</h2>
 <p><strong>BTCC hoş geldin bonusu</strong>, yeni kullanıcılara <strong>işlem ücreti indirimleri, para yatırma bonusları ve USDT ödülleri</strong> sunan bir teşvik programıdır.</p>
 <h3>BTCC Neden Bir Referans Bonusu Sunuyor?</h3>
