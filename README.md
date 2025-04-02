@@ -1,6 +1,8 @@
 <h1>BTCC Referans Kodu 'BTCCBONUS' – 11.000 USDT'ye Kadar Bonus ve %50 Komisyon İndirimi</h1>
 <h2>Giriş</h2>
 <p>BTCC'de ticaret ödüllerinizi en üst düzeye çıkarmanın en iyi yolunu mu arıyorsunuz? En son BTCC referans kodu (promosyon kodu veya indirim kodu) ile yeni kullanıcılar 11.000 USDT'ye kadar kayıt bonusu ve işlem ücretlerinde %50 indirim kazanıyor. İster yeni başlayan ister deneyimli bir yatırımcı olun, bu özel BTCC referans bonusunun avantajlarından yararlanın.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>BTCC Kayıt Bonusu 11.000 USDT'ye Kadar</h2>
 <h3>BTCC Referans Kodu - BTCCBONUS</h3>
 <table border="1">
