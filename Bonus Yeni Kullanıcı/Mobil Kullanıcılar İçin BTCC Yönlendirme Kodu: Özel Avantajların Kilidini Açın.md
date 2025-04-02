@@ -2,6 +2,7 @@
 
 <h2>Giriş</h2>
 <p>Sürekli gelişen kripto para ticareti dünyasında, BTCC gibi platformlar yenilikçi hizmetleri ve kullanıcı dostu mobil uygulamalarıyla öne çıkıyor. Mobil kullanıcılar için BTCC’nin sunduğu avantajları en üst düzeye çıkarmanın en iyi yollarından biri bir <strong>BTCC referans kodu</strong> kullanmaktır. İster kripto ticaretine yeni adım atan bir kullanıcı olun, ister deneyimli bir yatırımcı olarak yeni bir platform arayışında olun, bir referans kodu ile çeşitli bonuslara, indirimlere ve özel ödüllere erişebilirsiniz. Bu kılavuz, mobil cihazınızda bir <strong>BTCC referans kodu</strong> kullanımıyla ilgili bilmeniz gereken her şeyi, ayrıntılı talimatlar, avantajlar ve sıkça sorulan sorular dahil olmak üzere açıklayacaktır.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <h2>BTCC Nedir?</h2>
 <p>BTCC, kullanıcılarına geniş bir hizmet yelpazesi sunan önde gelen kripto para borsalarından biridir. Spot ticaretten vadeli işlemlere ve opsiyonlara kadar çeşitli dijital varlıkların güvenli ve verimli bir ortamda alım satımını sağlar. BTCC mobil uygulaması, kullanıcıların hareket halindeyken ticaret yapmasını sağlayarak, kripto piyasasında aktif ve esnek kalmak isteyenler için ideal bir seçimdir.</p>
