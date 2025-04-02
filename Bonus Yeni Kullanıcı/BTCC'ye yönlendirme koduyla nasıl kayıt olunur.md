@@ -4,6 +4,7 @@
 <section>
 <p>BTCC (Bitcoin Trading Company), kullanıcılara çeşitli ticaret seçenekleri, yüksek güvenlik ve rekabetçi komisyonlar sunan önde gelen bir kripto para borsasıdır. BTCC'ye katılmak istiyorsanız, bir <strong>BTCC referans kodu</strong> ile kayıt olmak avantajlarınızı en üst düzeye çıkarmanın harika bir yoludur. Bu makale, <strong>referans kodu</strong> veya <strong>promosyon kodu</strong> kullanarak BTCC'ye nasıl kayıt olacağınızı adım adım anlatacaktır. Bu sayede <strong>11.000 USDT</strong> bonus, <strong>%50 komisyon indirimi</strong> ve daha fazlasını kazanabilirsiniz.</p>
 </section>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
 
 <section>
 <h2>Neden BTCC Referans Kodu Kullanmalısınız?</h2>
